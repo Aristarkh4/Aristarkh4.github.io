@@ -1,1 +1,0 @@
-# aristarkh4.github.io
